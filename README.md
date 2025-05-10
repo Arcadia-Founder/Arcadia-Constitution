@@ -27,7 +27,7 @@ At its center is the **Civic Arbiter**, a nonpartisan role focused on balance, f
 
 ## 📺 Related Content
 
-Watch the introduction video on YouTube: [Arcadia – A New Kind of Government](https://www.youtube.com/your-video-link)
+Watch the introduction video on YouTube: [Arcadia: A New Kind of Government for the World We Actually Live In](https://www.youtube.com/watch?v=MuSUY3ZsVBc)
 
 ## 📢 Get Involved
 
